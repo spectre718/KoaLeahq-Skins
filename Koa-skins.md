@@ -18,7 +18,7 @@ Let me know if skins are missing/Links don't work by messaging me on discord! Th
 # [RyuK](https://bit.ly/2PFVUN0)
 ![](https://i.imgur.com/SzIdkW4.png)
 
-# [Arisita](https://puu.sh/BSj1V/6c9d4d0e79.osk)
+# [Aristia](https://puu.sh/BSj1V/6c9d4d0e79.osk)
 ![](https://i.imgur.com/C0aOPWc.png)
 
 # [Azer skin](https://bit.ly/2SwUlBI)
