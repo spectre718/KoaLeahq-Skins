@@ -7,7 +7,7 @@ Click on the skin name to download. If the download does not start or displays s
 
 Let me know if skins are missing/Links don't work by messaging me on discord! ThatsNotAName#4541
 
-# Some of the skins im using might be private and are not listed here!
+# Some of the skins I'm using might be private and are not listed here!
 
 # [owoTuna {1.0} 『Mathi』](https://bit.ly/2McmuiN)
 ![](https://i.imgur.com/plMtXPx.png)
