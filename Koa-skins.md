@@ -1,6 +1,8 @@
 # KoaLeahq skin compilation
 
 
+This is a list of skins that Koa uses on his stream [here](https://twitch.tv/KoaLeahq).
+
 Click on the skin name to download. If the download does not start or displays strange characters, press ctrl + S.
 
 Let me know if skins are missing/Links don't work by messaging me on discord! ThatsNotAName#4541
