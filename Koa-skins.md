@@ -8,19 +8,19 @@ Let me know if skins are missing/Links don't work by messaging me on discord! Th
 # Some of the skins im using might be private and are not listed here!
 
 # [owoTuna {1.0} 『Mathi』](https://bit.ly/2McmuiN)
-![](https://imgur.com/a/tWW8VIA)
+![](https://i.imgur.com/plMtXPx.png)
 
 # [KoaLigma](https://bit.ly/2ZKHkrw)
-![](https://imgur.com/a/PYWewQi)
+![](https://i.imgur.com/5ASCXeY.png)
 
 # [RyuK](https://bit.ly/2PFVUN0)
-![](https://imgur.com/a/1m4Ph4u)
+![](https://i.imgur.com/SzIdkW4.png)
 
 # [Arisita](https://puu.sh/BSj1V/6c9d4d0e79.osk)
-![](https://imgur.com/a/8AW5JBK)
+![](https://i.imgur.com/C0aOPWc.png)
 
 # [Azer skin](https://bit.ly/2SwUlBI)
-![](https://imgur.com/a/uK2o4cf)
+![](https://i.imgur.com/JpFWRs6.png)
 
 # [Wilchq skin](https://bit.ly/2zz5QmX)
-![](https://imgur.com/a/932Lhmr)
+![](https://i.imgur.com/XpBc2ez.png)
