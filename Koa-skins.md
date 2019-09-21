@@ -12,9 +12,6 @@ Let me know if skins are missing/Links don't work by messaging me on discord! Th
 # [owoTuna {1.0} 『Mathi』](https://bit.ly/2McmuiN)
 ![](https://i.imgur.com/plMtXPx.png)
 
-# [KoaLigma](https://bit.ly/2ZKHkrw)
-![](https://i.imgur.com/5ASCXeY.png)
-
 # [RyuK](https://bit.ly/2PFVUN0)
 ![](https://i.imgur.com/SzIdkW4.png)
 
@@ -23,6 +20,9 @@ Let me know if skins are missing/Links don't work by messaging me on discord! Th
 
 # [Azer skin](https://bit.ly/2SwUlBI)
 ![](https://i.imgur.com/JpFWRs6.png)
+
+# [KoaLigma](https://bit.ly/2ZKHkrw)
+![](https://i.imgur.com/5ASCXeY.png)
 
 # [Wilchq skin](https://bit.ly/2zz5QmX)
 ![](https://i.imgur.com/XpBc2ez.png)
