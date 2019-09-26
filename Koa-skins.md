@@ -26,3 +26,6 @@ Let me know if skins are missing/Links don't work by messaging me on discord! Th
 
 # [Wilchq skin](https://bit.ly/2zz5QmX)
 ![](https://i.imgur.com/XpBc2ez.png)
+
+# [Aristia Sora ver.](https://puu.sh/ElNSJ/4ab40f20fc.osk)
+![](https://imgur.com/a/Z809K5t)
