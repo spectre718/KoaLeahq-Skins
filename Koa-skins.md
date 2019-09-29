@@ -12,7 +12,7 @@ Let me know if skins are missing/Links don't work by messaging me on discord! Th
 # [owoTuna {1.0} 『Mathi』](https://bit.ly/2McmuiN)
 ![](https://i.imgur.com/plMtXPx.png)
 
-# [RyuK](https://bit.ly/2PFVUN0)
+# [RyuK](http://download1301.mediafire.com/m6peopfrwkyg/wso178mbt77dkx5/Komori+-+Ryugumink+Komori%5C%27s+Style+%28Megumin+-+Eihi%29.osk)
 ![](https://i.imgur.com/SzIdkW4.png)
 
 # [Aristia](https://puu.sh/BSj1V/6c9d4d0e79.osk)
