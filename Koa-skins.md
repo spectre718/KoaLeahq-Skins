@@ -15,7 +15,7 @@ Let me know if skins are missing/Links don't work by messaging me on discord! Th
 # [RyuK](http://download1301.mediafire.com/m6peopfrwkyg/wso178mbt77dkx5/Komori+-+Ryugumink+Komori%5C%27s+Style+%28Megumin+-+Eihi%29.osk)
 ![](https://i.imgur.com/SzIdkW4.png)
 
-# [Aristia](https://puu.sh/BSj1V/6c9d4d0e79.osk)
+# [Aristia (Edit) ](https://puu.sh/BSj1V/6c9d4d0e79.osk)
 ![](https://i.imgur.com/C0aOPWc.png)
 
 # [Azer skin](https://bit.ly/2SwUlBI)
