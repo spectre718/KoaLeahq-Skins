@@ -32,3 +32,6 @@ Let me know if skins are missing/Links don't work by messaging me on discord! Th
 
 # [404 AimNotFound](https://circle-people.com/wp-content/Skins/404%20AimNotFound/404%20AimNotFound%202018-06-10.osk)
 ![](https://i.imgur.com/vs0N3gU.jpg)
+
+# [Rafis HDDT Vaxei](https://joofixd.s-ul.eu/NyoJDqSp)
+![](https://i.imgur.com/v6l7tYJ.jpg)
