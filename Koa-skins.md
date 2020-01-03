@@ -10,7 +10,7 @@ Let me know if skins are missing/Links don't work by messaging me on discord! Th
 # Some of the skins I'm using might be private and are not listed here!
 
 # [KoaLigma『Niimi Sora』](http://www.mediafire.com/file/ow9ddhy9we302dk/-_%2523KoaLigma%25E3%2580%258ENiimi_Sora%25E3%2580%258F_%2523-.osk/file)
-![](https://imgur.com/PuHjVlI)
+![](https://i.imgur.com/PuHjVlI.jpg)
 
 # [owoTuna {1.0} 『Mathi』](https://bit.ly/2McmuiN)
 ![](https://i.imgur.com/plMtXPx.png)
