@@ -12,6 +12,9 @@ Let me know if skins are missing/Links don't work by messaging me on discord! Th
 # [KoaLigma『Niimi Sora』](http://www.mediafire.com/file/cprjvpbe7qpw99w/-_%2523KoaLigma%25E3%2580%258ENiimi_Sora%25E3%2580%258F_%2523-.osk/file)
 ![](https://i.imgur.com/PuHjVlI.jpg)
 
+# [vaxei nomod ver. 2](https://joofixd.s-ul.eu/RNQ0X5dB)
+![](https://i.imgur.com/w287REa.jpg)
+
 # [owoTuna {1.0} 『Mathi』](https://bit.ly/2McmuiN)
 ![](https://i.imgur.com/plMtXPx.png)
 
