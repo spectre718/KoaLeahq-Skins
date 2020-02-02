@@ -5,7 +5,7 @@ This is a list of skins that Koa uses on his stream [here](https://twitch.tv/Koa
 
 Click on the skin name to download. If the download does not start or displays strange characters, press ctrl + S.
 
-Let me know if skins are missing/Links don't work by messaging me on discord! ThatsNotAName#4541
+If skins are missing/Links don't work, let me know by messaging me on discord. ThatsNotAName#4541
 
 # Some of the skins I'm using might be private and are not listed here!
 
