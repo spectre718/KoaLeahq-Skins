@@ -9,6 +9,9 @@ If skins are missing/Links don't work, let me know by messaging me on discord. T
 
 # If a skin is missing from this list, maybe try using some problem solving skills and try finding it yourself. Most skins are just mixes of recycled assets. Look for water marks under the healthbar or find a point in the VOD/video where Koa switches to the skin you're looking for.
 
+# [KoaLigma『Niimi Sora』V2](http://www.mediafire.com/file/6qux48v5dl07kpj/-_%2523KoaLigma%25E3%2580%258ENiimi_Sora%25E3%2580%258F_%2523-%25282%2529.osk/file)
+![](https://i.imgur.com/lDLMzw8.jpg)
+
 # [KoaLigma『Niimi Sora』](http://www.mediafire.com/file/cprjvpbe7qpw99w/-_%2523KoaLigma%25E3%2580%258ENiimi_Sora%25E3%2580%258F_%2523-.osk/file)
 ![](https://i.imgur.com/PuHjVlI.jpg)
 
