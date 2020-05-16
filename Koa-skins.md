@@ -21,7 +21,7 @@ If skins are missing/Links don't work, let me know by messaging me on discord. T
 # [owoTuna {1.0} 『Mathi』](https://bit.ly/2McmuiN)
 ![](https://i.imgur.com/plMtXPx.png)
 
-# [RyuK](http://download1301.mediafire.com/m6peopfrwkyg/wso178mbt77dkx5/Komori+-+Ryugumink+Komori%5C%27s+Style+%28Megumin+-+Eihi%29.osk)
+# [RyuK](https://www.dropbox.com/s/7klqe06pjqgr4bg/Komori%20-%20Ryugumink%20Ryuk%27s%20Style%28Megumin%20-%20Eihi%29.osk?dl=0)
 ![](https://i.imgur.com/SzIdkW4.png)
 
 # [Aristia (Edit) ](https://puu.sh/BSj1V/6c9d4d0e79.osk)
@@ -41,3 +41,6 @@ If skins are missing/Links don't work, let me know by messaging me on discord. T
 
 # [Rafis HDDT Vaxei](https://joofixd.s-ul.eu/NyoJDqSp)
 ![](https://i.imgur.com/v6l7tYJ.jpg)
+
+
+
