@@ -42,5 +42,8 @@ If skins are missing/Links don't work, let me know by messaging me on discord. T
 # [Rafis HDDT Vaxei](https://joofixd.s-ul.eu/NyoJDqSp)
 ![](https://i.imgur.com/v6l7tYJ.jpg)
 
+# [WhiteCat (1.0)『CK』](http://www.mediafire.com/file/6250ar1z1jq0aes/_%2523_WhiteCat_%25281.0%2529_%25E3%2580%258ECK%25E3%2580%258F_%2523-.osk/file)
+![](https://i.imgur.com/5ru5ZFS.jpg)
+
 
 
