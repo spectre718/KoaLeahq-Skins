@@ -48,5 +48,8 @@ If skins are missing/Links don't work, let me know by messaging me on discord. T
 # [Beep - Ryuk](https://www.dropbox.com/s/bvw75x73hmozowf/beep.osk?dl=0)
 ![](https://i.imgur.com/h9QDYRn.jpg)
 
+# [Vaxei](http://www.mediafire.com/file/i2m41r485zdvyf4/Vaxei_2018-03-06_DT.osk/file)
+![](https://i.imgur.com/NF7Eouh.jpg)
+
 
 
