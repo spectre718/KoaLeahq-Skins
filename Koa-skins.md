@@ -51,5 +51,7 @@ If skins are missing/Links don't work, let me know by messaging me on discord. T
 # [Vaxei](http://www.mediafire.com/file/i2m41r485zdvyf4/Vaxei_2018-03-06_DT.osk/file)
 ![](https://i.imgur.com/NF7Eouh.jpg)
 
+# [Vaxei](https://mega.nz/folder/gWwVwKzR#2pwIsA4m_d2I0SfXikynnQ/file/sawHwKgI)
+![](https://i.imgur.com/EaB7RYG.png)
 
 
